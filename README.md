@@ -9,4 +9,5 @@
 - 📫 How to reach me: nowhere
 - 😄 Pronouns: They.
 - ⚡ Lightning: No USB-C
-- ⚡Fun things: Your programming skills. Joke :-D :-D :-D
+- ⚡ Fun things: Your programming skills. Joke :-D :-D :-D
+- 🧑🏼‍💻 One of us @FloriDevs
